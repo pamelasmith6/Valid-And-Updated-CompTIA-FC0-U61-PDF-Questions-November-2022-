@@ -1,0 +1,1 @@
+# Valid-And-Updated-CompTIA-FC0-U61-PDF-Questions-November-2022-
